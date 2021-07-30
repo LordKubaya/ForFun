@@ -1,2 +1,2 @@
 # ForFun
-Just doing aleatory thigns
+Just doing aleatory things
